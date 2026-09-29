@@ -1,4 +1,4 @@
-## Hi I'm Mace👋
+Hi I'm Mace👋
 
 i do testing for games
 
